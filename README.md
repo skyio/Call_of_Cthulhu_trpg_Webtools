@@ -1,0 +1,2 @@
+# Call_of_Cthulhu_trpg_Webtools
+方便CoC trpg的KP加强自己团内的演出效果
